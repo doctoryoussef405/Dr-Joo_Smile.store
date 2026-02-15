@@ -1,1 +1,1 @@
-# Dr-Joo_Smile.store
+# Joo_Smile.store
